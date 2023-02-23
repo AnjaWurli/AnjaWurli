@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 🌱 I’m currently learning with Europe Coding Bootcamps.
 
-⚡ Fun fact: From a destiller over hotel entertainer to future programmer - thats my journey.
+⚡ Fun fact: From a destiller over hotel entertainer to future programmer - because life begins where the comfortzone ends.
 
 
 ---
